@@ -1,2 +1,3 @@
-![creds to horrist on tumblr](https://file.garden/aKCcrXLfCSXZFuP3/tumblr_037b2f9bba0c678d7410c2abd6065633_df11dedf_2048.webp)
-<p align="center"> I lav josuke  </p>
+[![Untitled-Artwork-1.png](https://i.postimg.cc/7ZRf210R/Untitled-Artwork-1.png)](https://postimg.cc/yDF1qZfh)
+
+hi
