@@ -1,3 +1,3 @@
-[![image.png](https://i.postimg.cc/NFwSydsn/image.png)](https://postimg.cc/9RJJKtqP)
+[![image.png](https://files.catbox.moe/52fyyw.png)](https://files.catbox.moe/52fyyw)
 
 banner by @kyxmli tumblr
